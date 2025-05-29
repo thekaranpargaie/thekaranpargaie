@@ -1,4 +1,4 @@
-# 👋 Hello, World! I'm Karan Pargaien
+# 👋 Hello, World! I'm The Karan Pargaien
 
 🌄 Born in the serene landscapes of Uttarakhand  
 🏙️ Currently coding away in Noida, India  
